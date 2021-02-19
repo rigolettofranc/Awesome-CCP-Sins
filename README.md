@@ -10,3 +10,5 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Biden calls Chinese President Xi and criticizes abuse of Uighurs. But we need more than words. | NBC News](https://www.cnn.com/videos/world/2021/02/17/china-uyghurs-human-rights-joe-biden-town-hall-vpx.cnn/video/playlists/joe-biden-town-hall/) Feb 13th 2021
 - [WATCH: Biden Excuses Genocide Of Uyghurs As A “Cultural Norm”
  | The National Pulse](https://thenationalpulse.com/breaking/biden-excuses-uyghur-genocide/) Feb 16th 2021
+- [She tweeted from Sweden about the plight of her Uyghur cousin. In Xinjiang, the authorities were watching
+ | CNN](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html) Dec 17th 2020
