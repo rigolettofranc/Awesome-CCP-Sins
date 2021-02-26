@@ -12,3 +12,4 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
  | The National Pulse](https://thenationalpulse.com/breaking/biden-excuses-uyghur-genocide/) Feb 16th 2021
 - [She tweeted from Sweden about the plight of her Uyghur cousin. In Xinjiang, the authorities were watching
  | CNN](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html) Dec 17th 2020
+- [Inside Xinjiang's Prison State | New Yorker](https://www.newyorker.com/news/a-reporter-at-large/china-xinjiang-prison-state-uighur-detention-camps-prisoner-testimony) Feb 26th 2021
