@@ -16,3 +16,6 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 
 ## Occupation of Tibet
 - [Gravitas: How China is waging an assault on the Tibetan identity | WION](https://youtu.be/CVdElQQzi1I) Dec 29th 2020
+
+## Hong Kong's Brutal Crackdown
+- [China’s Campaign to Crush Democracy in Hong Kong Is Working | WSJ](https://www.wsj.com/articles/chinas-campaign-to-crush-democracy-in-hong-kong-is-working-11614268174) Feb 25th 2021
