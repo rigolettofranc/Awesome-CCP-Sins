@@ -21,6 +21,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Gravitas: How China is waging an assault on the Tibetan identity | WION](https://youtu.be/CVdElQQzi1I) Dec 29th 2020
 
 ## Hong Kong's Brutal Crackdown
-- [China’s Campaign to Crush Democracy in Hong Kong Is Working | WSJ](https://www.wsj.com/articles/chinas-campaign-to-crush-democracy-in-hong-kong-is-working-11614268174) Feb 25th 2021
+- [China unveils Hong Kong electoral changes as it tightens grip on city | The Guardian](https://www.theguardian.com/world/2021/mar/05/china-unveils-hong-kong-electoral-reform-as-beijing-tightens-grip) Mar 5th 2021
 - [With new mass detentions, every prominent Hong Kong activist is either in jail or exile | Washington Post](https://www.washingtonpost.com/world/asia_pacific/hong-kong-arrests-national-security-law/2021/02/28/7e6cd252-77ea-11eb-9489-8f7dacd51e75_story.html) Feb 28th 2021
 - [47 pro-democracy activists detained in Hong Kong on subversion charges | Global News](https://globalnews.ca/news/7667976/hong-kong-47-protesters-detained/) Feb 28th 2021
+- [China’s Campaign to Crush Democracy in Hong Kong Is Working | WSJ](https://www.wsj.com/articles/chinas-campaign-to-crush-democracy-in-hong-kong-is-working-11614268174) Feb 25th 2021
