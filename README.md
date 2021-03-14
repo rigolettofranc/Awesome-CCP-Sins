@@ -18,6 +18,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Repeating Lies: Viewing Chinese regime's deception through case of Dr. Gulshan Abbas | Taiwan News](https://www.taiwannews.com.tw/en/news/4114120) Jan 29th 2021
 - [She tweeted from Sweden about the plight of her Uyghur cousin. In Xinjiang, the authorities were watching
  | CNN](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html) Dec 17th 2020
+- [Xinjiang government confirms huge birth rate drop but denies forced sterilization of women | CNN](https://www.cnn.com/2020/09/21/asia/xinjiang-china-response-sterilization-intl-hnk/index.html) Sep 21st 2020
 - [China’s Vanishing Muslims: Undercover In The Most Dystopian Place In The World | VICE News](https://youtu.be/v7AYyUqrMuQ) Jun 29th 2019
 
 ## Occupation of Tibet
