@@ -21,6 +21,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [China’s Vanishing Muslims: Undercover In The Most Dystopian Place In The World | VICE News](https://youtu.be/v7AYyUqrMuQ) Jun 29th 2019
 
 ## Occupation of Tibet
+- [Women Routinely Raped in Tibetan Reeducation Camps Too | Bitter Winter](https://bitterwinter.org/women-routinely-raped-in-tibetan-reeducation-camps-too/) Mar 14th 2021
 - [Gravitas: How China is waging an assault on the Tibetan identity | WION](https://youtu.be/CVdElQQzi1I) Dec 29th 2020
 
 ## Hong Kong's Brutal Crackdown
