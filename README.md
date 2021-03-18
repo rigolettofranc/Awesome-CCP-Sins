@@ -4,6 +4,8 @@ The collection of all the sins and wrongdoings by CCP
 p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collections on Github. We are simply following the tradition here by using 'awesome', but in no way justify CCP's wrongdoings in any positive context.
 
 ## Uyghur's Concentration Camps
+- [Opinion: U.S. sanctions for the Uyghur genocide are hurting China. But they aren’t enough. | The Washington Post](https://www.washingtonpost.com/opinions/global-opinions/us-sanctions-for-the-uyghur-genocide-are-hurting-china-but-they-arent-enough/2021/03/13/fc09c45c-8359-11eb-81db-b02f0398f49a_story.html) Mar 15th 2021
+- [Even in the UK I don’t feel safe from the pernicious reach of the Chinese state | The Telegraph](https://www.telegraph.co.uk/news/2021/03/13/even-uk-dont-feel-safe-pernicious-reach-chinese-state/) Mar 13th 2021
 - [Exclusive: Uighurs harassed and abused by Beijing in UK, minister admits | The Telegraph](https://www.telegraph.co.uk/news/2021/03/13/exclusive-uighurs-harassed-abused-beijing-uk-minister-admits/) Mar 13th 2021
 - [Uyghur Women Are China’s Victims—and Resistance | Foreign Policy ](https://foreignpolicy.com/2021/03/12/uyghur-women-are-chinas-victims-and-resistance/) Mar 12th 2021
 - [First independent report into Xinjiang genocide allegations claims evidence of Beijing's 'intent to destroy' Uyghur people | CNN](https://edition.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html) Mar 9th 2021
