@@ -46,3 +46,6 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 
 ## Journalism
 - [Westerners are increasingly scared of traveling to China as threat of detention rises | CNN](https://edition.cnn.com/2021/03/09/china/china-travel-foreigners-arbitrary-detention-hnk-dst-intl/index.html) Mar 10th 2021
+
+## Christianity
+- [China Is Detaining Christians In Secret Facilities Forcing Them To Renounce Their Faith Or Be Tortured: Report | Daily Wire](https://www.dailywire.com/news/china-is-detaining-christians-in-secret-facilities-forcing-them-to-renounce-their-faith-or-be-tortured-report) Apr 5th 2021 
