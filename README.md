@@ -4,6 +4,7 @@ The collection of all the sins and wrongdoings by CCP
 p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collections on Github. We are simply following the tradition here by using 'awesome', but in no way justify CCP's wrongdoings in any positive context.
 
 ## Uyghur's Concentration Camps
+- [‘If we are provoked we will respond’: China goes on offensive over treatment of Uighurs | SMH](https://www.smh.com.au/politics/federal/if-we-are-provoked-we-will-respond-china-goes-on-offensive-over-treatment-of-uighurs-20210407-p57h6p.html) Apr 7th 2021
 - [U.S. could consider boycotting 2022 Beijing Olympics with allies | AXIOS](https://www.axios.com/us-boycott-2022-beijing-winter-olympics-9a6349f5-41db-4067-a2c8-53ed004f54ac.html) Apr 7th 2021
 - [Olympic committee gave uniform contract to Chinese company with Xinjiang ties | AXIOS](https://www.axios.com/olympic-committee-gave-uniform-contract-to-chinese-company-with-xinjiang-ties-7ef4000e-2d39-49c8-8134-2e871be6837f.html) Apr 7th 2021
 - [Adelaide's Uighur community fears new Chinese consulate building will lead to monitoring | SBS News](https://www.sbs.com.au/news/adelaide-s-uighur-community-fears-new-chinese-consulate-building-will-lead-to-monitoring) Apr 6th 2021
