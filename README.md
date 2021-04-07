@@ -16,6 +16,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [The cost of speaking up against China | BBC](https://www.bbc.com/news/world-asia-china-56563449) Mar 31st 2021
 - [China welcomes UN visit to Xinjiang, but opposes investigation | CBC](https://www.cbc.ca/news/politics/china-un-xinjiang-human-rights-1.5968002) Mar 29th 2021
 - [Uyghurs in Turkey protest Chinese foreign minister's visit | The Philadelphia Inquirer](https://www.inquirer.com/wires/ap/uyghurs-turkey-protest-chinese-foreign-ministers-visit-20210325.html) Mar 25th 2021
+- [Average Investor Unknowingly Financing Firms Complicit in Uyghur Genocide—Keith Krach, Ellie Cohanim | American Thought Leaders](https://rumble.com/vf1n13-average-investor-unknowingly-financing-firms-complicit-in-uyghur-genocideke.html) Mar 25th 2021
 - [Xinjiang ‘Re-Education’ Camps Brought to Life in New Yorker VR Doc at SXSW | Variety](https://variety.com/2021/film/news/xinjiang-reeducated-sxsw-new-yorker-virtual-reality-1234936443/) Mar 23rd 2021
 - [Australian politicians blast China for ‘serious and systemic’ breaches of human rights against Uighur people | 7News ](https://7news.com.au/news/world/china-criticised-for-abuse-against-uighurs-c-2405221) Mar 22nd 2021
 - [Opinion: U.S. sanctions for the Uyghur genocide are hurting China. But they aren’t enough. | The Washington Post](https://www.washingtonpost.com/opinions/global-opinions/us-sanctions-for-the-uyghur-genocide-are-hurting-china-but-they-arent-enough/2021/03/13/fc09c45c-8359-11eb-81db-b02f0398f49a_story.html) Mar 15th 2021
