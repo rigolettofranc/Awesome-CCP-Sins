@@ -40,6 +40,8 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
  | CNN](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html) Dec 17th 2020
 - [Xinjiang government confirms huge birth rate drop but denies forced sterilization of women | CNN](https://www.cnn.com/2020/09/21/asia/xinjiang-china-response-sterilization-intl-hnk/index.html) Sep 21st 2020
 - [Human rights groups call on IOC to revoke 2022 Beijing Olympics | AXIOS](https://www.axios.com/human-rights-2022-beijing-winter-olympics-fd52ee3f-6330-44db-a4b5-fbcc736a4148.html) Sep 9th 2020
+- [U.S. Imposes Sanctions on Chinese Officials Over Mass Detention of Muslims
+| NY Times](https://www.nytimes.com/2020/07/09/world/asia/trump-china-sanctions-uighurs.html) Jul 9th 2020
 - [China’s Vanishing Muslims: Undercover In The Most Dystopian Place In The World | VICE News](https://youtu.be/v7AYyUqrMuQ) Jun 29th 2019
 
 ## Occupation of Tibet
