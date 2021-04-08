@@ -60,3 +60,4 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 
 ## Christianity
 - [China Is Detaining Christians In Secret Facilities Forcing Them To Renounce Their Faith Or Be Tortured: Report | Daily Wire](https://www.dailywire.com/news/china-is-detaining-christians-in-secret-facilities-forcing-them-to-renounce-their-faith-or-be-tortured-report) Apr 5th 2021 
+- [Want to escape poverty? Replace pictures of Jesus with Xi Jinping, Christian villagers urged | SCMP](https://www.scmp.com/news/china/policies-politics/article/2119699/praise-xi-jinping-not-jesus-escape-poverty-christian) Nov 14th 2017
