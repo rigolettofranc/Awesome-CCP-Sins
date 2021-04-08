@@ -43,6 +43,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [U.S. Imposes Sanctions on Chinese Officials Over Mass Detention of Muslims
 | NY Times](https://www.nytimes.com/2020/07/09/world/asia/trump-china-sanctions-uighurs.html) Jul 9th 2020
 - [Trump signs bill pressuring China over Uighur Muslim crackdown | Reuters](https://www.reuters.com/article/us-usa-china-xinjiang-idUSKBN23O3EW) Jun 18th 2020
+- [‘Absolutely No Mercy’: Leaked Files Expose How China Organized Mass Detentions of Muslims | NY Times](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html) Nov 16th 2019
 - [China’s Vanishing Muslims: Undercover In The Most Dystopian Place In The World | VICE News](https://youtu.be/v7AYyUqrMuQ) Jun 29th 2019
 
 ## Occupation of Tibet
