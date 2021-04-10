@@ -4,6 +4,7 @@ The collection of all the sins and wrongdoings by CCP
 p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collections on Github. We are simply following the tradition here by using 'awesome', but in no way justify CCP's wrongdoings in any positive context.
 
 ## Uyghur's Concentration Camps
+- [Australian Uighurs condemn China's 'insulting' and 'bizarre' press conference about abuses in Xinjiang | SBS](https://www.sbs.com.au/news/australian-uighurs-condemn-china-s-insulting-and-bizarre-press-conference-about-abuses-in-xinjiang) Apr 8th 2021
 - [China’s ‘Wonderful Land’ spin on Uighurs is as authentic as a purple panda | The Australian](https://www.theaustralian.com.au/commentary/editorials/chinas-uighur-spin-is-as-authentic-as-a-purple-panda/news-story/40be9918d83ded5a01f6de2ca5c41afe) Apr 8th 2021
 - [B.C. premier asked to remove retired judge from Chinese-Canadian committee following Uyghur comments | CBC](https://www.cbc.ca/news/canada/british-columbia/bill-yee-uyghur-genocide-1.5979027) Apr 7th 2021
 - [China researchers face abuse, sanctions as Beijing looks to silence critics | The Washington Post](https://www.washingtonpost.com/world/asia_pacific/china-online-threats-academics-xinjiang/2021/04/07/2ff73360-968f-11eb-8f0a-3384cf4fb399_story.html) Apr 7th 2021
