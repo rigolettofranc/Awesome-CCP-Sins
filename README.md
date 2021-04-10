@@ -43,6 +43,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
  | CNN](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html) Dec 17th 2020
 - [Xinjiang government confirms huge birth rate drop but denies forced sterilization of women | CNN](https://www.cnn.com/2020/09/21/asia/xinjiang-china-response-sterilization-intl-hnk/index.html) Sep 21st 2020
 - [Human rights groups call on IOC to revoke 2022 Beijing Olympics | AXIOS](https://www.axios.com/human-rights-2022-beijing-winter-olympics-fd52ee3f-6330-44db-a4b5-fbcc736a4148.html) Sep 9th 2020
+- [Chinese hospitals aborted late-stage pregnancies and killed newborns as part of a campaign to purge the Uighur culture, report says | Business Insider](https://www.businessinsider.com/china-xinjiang-hospitals-abort-uighur-pregnancies-killed-newborns-report-2020-8?r=DE&IR=Ti&fbclid=IwAR2RGTB1EhNTDpEH9bhYjWwajNL5j5zEM3_yn7Okq-BAr0EcXN4vXlvYF_M) Aug 18th 2020
 - [U.S. Imposes Sanctions on Chinese Officials Over Mass Detention of Muslims
 | NY Times](https://www.nytimes.com/2020/07/09/world/asia/trump-china-sanctions-uighurs.html) Jul 9th 2020
 - [Trump signs bill pressuring China over Uighur Muslim crackdown | Reuters](https://www.reuters.com/article/us-usa-china-xinjiang-idUSKBN23O3EW) Jun 18th 2020
