@@ -51,6 +51,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Trump signs bill pressuring China over Uighur Muslim crackdown | Reuters](https://www.reuters.com/article/us-usa-china-xinjiang-idUSKBN23O3EW) Jun 18th 2020
 - [‘Absolutely No Mercy’: Leaked Files Expose How China Organized Mass Detentions of Muslims | NY Times](https://www.nytimes.com/interactive/2019/11/16/world/asia/china-xinjiang-documents.html) Nov 16th 2019
 - [China’s Vanishing Muslims: Undercover In The Most Dystopian Place In The World | VICE News](https://youtu.be/v7AYyUqrMuQ) Jun 29th 2019
+- [Where Did the One Million Figure for Detentions in Xinjiang’s Camps Come From? | China File](https://www.chinafile.com/reporting-opinion/features/where-did-one-million-figure-detentions-xinjiangs-camps-come) Jan 8th 2019
 
 ## Occupation of Tibet
 - [China in New Push Against Dalai Lama Photos in Kardze | RFA](https://www.rfa.org/english/news/tibet/photos-04092021131635.html) Apr 9th 2021
