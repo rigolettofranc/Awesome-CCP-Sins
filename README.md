@@ -18,6 +18,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Adelaide's Uighur community fears new Chinese consulate building will lead to monitoring | SBS News](https://www.sbs.com.au/news/adelaide-s-uighur-community-fears-new-chinese-consulate-building-will-lead-to-monitoring) Apr 6th 2021
 - [Surviving the Crackdown in Xinjiang | The New Yorker](https://www.newyorker.com/magazine/2021/04/12/surviving-the-crackdown-in-xinjiang) Apr 5th 2021
 - [Japan Calls on China to Improve Conditions for Uyghurs, Hong Kong | WSJ](https://www.wsj.com/articles/japan-calls-on-china-to-improve-conditions-for-uyghurs-hong-kong-11617629893) Apr 5th 2021
+- [Facebook Staff Fret Over China’s Ads Portraying Happy Muslims in Xinjiang | WSJ](https://www.wsj.com/articles/facebook-staff-fret-over-chinas-ads-portraying-happy-muslims-in-xinjiang-11617366096) Apr 2nd 2021
 - [China using propaganda ads on Facebook to show oppressed Muslims happy | NYPost ](https://nypost.com/2021/04/02/china-using-propaganda-ads-on-facebook-to-show-oppressed-muslims-happy/) Apr 2nd 2021
 - [How Beijing silences Chinese voices against oppression of Uyghurs | LA Times](https://www.latimes.com/world-nation/story/2021-04-01/china-xinjiang-uyghur-han-censorship-nationalism) Apr 1st 2021
 - [The cost of speaking up against China | BBC](https://www.bbc.com/news/world-asia-china-56563449) Mar 31st 2021
