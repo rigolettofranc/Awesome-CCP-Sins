@@ -4,6 +4,7 @@ The collection of all the sins and wrongdoings by CCP
 p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collections on Github. We are simply following the tradition here by using 'awesome', but in no way justify CCP's wrongdoings in any positive context.
 
 ## Uyghur's Concentration Camps
+- [Flattered to Be on China’s Sanctions List | WSJ](https://www.wsj.com/articles/flattered-to-be-on-chinas-sanctions-list-11618174152) Apr 11th 2021
 - [Boycotting the Beijing Olympics is about preventing future 'Genocide Games' | Washington Examiner](https://www.washingtonexaminer.com/opinion/editorials/boycotting-the-beijing-olympics-is-about-preventing-future-genocide-games) Apr 10th 2021
 - [China hands death sentences to Uyghur former officials | The Guardian](https://www.theguardian.com/world/2021/apr/09/china-uyghur-death-sentences-xinjiang-education-directors) Apr 9th 2021
 - [Australian Uighurs condemn China's 'insulting' and 'bizarre' press conference about abuses in Xinjiang | SBS](https://www.sbs.com.au/news/australian-uighurs-condemn-china-s-insulting-and-bizarre-press-conference-about-abuses-in-xinjiang) Apr 8th 2021
