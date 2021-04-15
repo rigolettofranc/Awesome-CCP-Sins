@@ -70,6 +70,9 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [47 pro-democracy activists detained in Hong Kong on subversion charges | Global News](https://globalnews.ca/news/7667976/hong-kong-47-protesters-detained/) Feb 28th 2021
 - [China’s Campaign to Crush Democracy in Hong Kong Is Working | WSJ](https://www.wsj.com/articles/chinas-campaign-to-crush-democracy-in-hong-kong-is-working-11614268174) Feb 25th 2021
 
+## Taiwan
+- [Glavin: Taiwan's liberal-democracy champion is squeezed out as Canada kowtows to China | Ottawa Citizen](https://ottawacitizen.com/opinion/glavin-taiwans-liberal-democracy-champion-is-squeezed-out-as-canada-kowtows-to-china) Apr 14th 2021
+
 ## Journalism
 - [Westerners are increasingly scared of traveling to China as threat of detention rises | CNN](https://edition.cnn.com/2021/03/09/china/china-travel-foreigners-arbitrary-detention-hnk-dst-intl/index.html) Mar 10th 2021
 
