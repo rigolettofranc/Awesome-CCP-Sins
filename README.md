@@ -7,6 +7,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Decades of service to China’s government didn’t save my Uyghur dad from prison | Washington Post](https://www.washingtonpost.com/outlook/uyghur-china-father-prison/2021/04/16/3cc196fe-985f-11eb-a6d0-13d207aadb78_story.html) Apr 16th 2021
 - [Yes, the Atrocities in Xinjiang Constitute a Genocide | Foreign Policy](https://foreignpolicy.com/2021/04/15/xinjiang-uyghurs-intentional-genocide-china/) Apr 15th 2021
 - [Gynecologist Exiled From China Says 80 Sterilizations Per Day Forced on Uyghurs | Newsweek](https://www.newsweek.com/gynecologist-exiled-china-says-80-sterilizations-per-day-forced-uyghurs-1583678) Apr 14th 2021
+- [Secrecy and Abuse Claims Haunt China’s Solar Factories in Xinjiang | Bloomberg](https://www.bloomberg.com/graphics/2021-xinjiang-solar/) Apr 13th 2021
 - [Solar energy push relies on region in China linked to Uyghur genocide | NY Post](https://nypost.com/2021/04/12/solar-energy-push-relies-on-region-in-china-linked-to-uyghur-genocide/) Apr 12th 2021
 - [Flattered to Be on China’s Sanctions List | WSJ](https://www.wsj.com/articles/flattered-to-be-on-chinas-sanctions-list-11618174152) Apr 11th 2021
 - [Boycotting the Beijing Olympics is about preventing future 'Genocide Games' | Washington Examiner](https://www.washingtonexaminer.com/opinion/editorials/boycotting-the-beijing-olympics-is-about-preventing-future-genocide-games) Apr 10th 2021
