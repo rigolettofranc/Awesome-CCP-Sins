@@ -4,6 +4,8 @@ The collection of all the sins and wrongdoings by CCP
 p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collections on Github. We are simply following the tradition here by using 'awesome', but in no way justify CCP's wrongdoings in any positive context.
 
 ## Uyghur's Concentration Camps
+- [Uyghur Australian woman breaks her silence as her husband is sentenced to 25 years in a Chinese jail in Xinjiang | ABC News](https://www.abc.net.au/news/2021-04-20/uyghur-australian-resident-sentenced-to-jail-in-xinjiang-china/100074634) Apr 20th 2021
+- [Batches of 50 to 100 Uighur workers are being advertised on the Chinese internet | Sky News](https://news.sky.com/story/new-evidence-of-the-strict-controls-uighurs-face-in-factories-thousands-of-miles-from-home-12276248) Apr 16th 2021
 - [Decades of service to China’s government didn’t save my Uyghur dad from prison | Washington Post](https://www.washingtonpost.com/outlook/uyghur-china-father-prison/2021/04/16/3cc196fe-985f-11eb-a6d0-13d207aadb78_story.html) Apr 16th 2021
 - [Yes, the Atrocities in Xinjiang Constitute a Genocide | Foreign Policy](https://foreignpolicy.com/2021/04/15/xinjiang-uyghurs-intentional-genocide-china/) Apr 15th 2021
 - [Gynecologist Exiled From China Says 80 Sterilizations Per Day Forced on Uyghurs | Newsweek](https://www.newsweek.com/gynecologist-exiled-china-says-80-sterilizations-per-day-forced-uyghurs-1583678) Apr 14th 2021
