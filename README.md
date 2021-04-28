@@ -81,6 +81,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [Glavin: Taiwan's liberal-democracy champion is squeezed out as Canada kowtows to China | Ottawa Citizen](https://ottawacitizen.com/opinion/glavin-taiwans-liberal-democracy-champion-is-squeezed-out-as-canada-kowtows-to-china) Apr 14th 2021
 
 ## Journalism
+- [How China is stoking America’s racial tensions | Spectator](https://spectator.us/topic/china-stoking-america-racial-tensions/) Apr 26th 2021
 - [Westerners are increasingly scared of traveling to China as threat of detention rises | CNN](https://edition.cnn.com/2021/03/09/china/china-travel-foreigners-arbitrary-detention-hnk-dst-intl/index.html) Mar 10th 2021
 
 ## Christianity
