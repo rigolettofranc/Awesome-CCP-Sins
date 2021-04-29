@@ -78,6 +78,7 @@ p.s. 'Awesome' is a commonly used phrased for all kinds of open-source collectio
 - [China’s Campaign to Crush Democracy in Hong Kong Is Working | WSJ](https://www.wsj.com/articles/chinas-campaign-to-crush-democracy-in-hong-kong-is-working-11614268174) Feb 25th 2021
 
 ## Taiwan
+- [Are the 'drums of war' beating louder and what does it mean? | Canberra Times](https://www.canberratimes.com.au/story/7227037/are-the-drums-of-war-beating-louder-and-what-does-it-mean-for-us/) Apr 28th 2021
 - [Glavin: Taiwan's liberal-democracy champion is squeezed out as Canada kowtows to China | Ottawa Citizen](https://ottawacitizen.com/opinion/glavin-taiwans-liberal-democracy-champion-is-squeezed-out-as-canada-kowtows-to-china) Apr 14th 2021
 
 ## Journalism
